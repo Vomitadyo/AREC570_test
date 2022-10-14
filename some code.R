@@ -1,0 +1,1 @@
+#this scriot is to make a point abt differeces across bracnesg
